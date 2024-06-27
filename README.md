@@ -1,7 +1,3 @@
-## • About me •
-- I'm currently developing a server U̴ņk̛n̷o̡w͠n̢D̴e̛àd̨
-- I am an active member of the mystical Minecraft community
-──────────────────────────────────────────────
 
 ## • Using •
 
